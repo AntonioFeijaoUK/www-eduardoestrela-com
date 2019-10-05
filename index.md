@@ -1,5 +1,7 @@
 # Eduardo Estrela
 
+![Eduardo Estrela PT](./eduardo-estrela-pt.jpg)
+
 ---
 
 ## Welcome
@@ -44,4 +46,4 @@ On my free time I like to :
 
 ## Keep in touch
 
-Feel free to contact me by email eduardoestrelav[AT]gmail.com
+Feel free to contact me by email **eduardoestrelav[AT]gmail.com**

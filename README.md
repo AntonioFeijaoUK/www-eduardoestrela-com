@@ -48,4 +48,4 @@ On my free time I like to :
 
 - Email - feel free to contact me by email **eduardoestrelav[AT]gmail.com**
 
-- Instagram - [EduardoEstrela](https://www.instagram.com/eduardoestrela12/)
+- Instagram - [Eduardo Estrela PT](https://www.instagram.com/eduardoestrelapt/)

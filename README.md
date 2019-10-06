@@ -1,6 +1,6 @@
 # Eduardo Estrela
 
-![Eduardo Estrela PT](./Eduardo-Estrela-pt.jpg)
+![Eduardo Estrela PT](./eduardo-estrela-pt.png)
 
 ---
 

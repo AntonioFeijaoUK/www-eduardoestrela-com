@@ -2,6 +2,11 @@
 
 ![Eduardo Estrela PT](./eduardo-estrela-pt.png)
 
+
+## EN version [this page](https://www.eduardoestrela.com)
+
+## Versão PT [Clica aqui](https://translate.google.com/translate?hl=&sl=en&tl=pt&u=https%3A%2F%2Fwww.eduardoestrela.com%2F)
+
 ---
 
 ## Welcome
